@@ -1,1 +1,1 @@
-;)
+KOPYA KA?? GEWW
